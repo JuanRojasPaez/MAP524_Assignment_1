@@ -1,1 +1,1 @@
-# MAP524_Assignment_1
+# MAP524 Assignment 1 Proposal
